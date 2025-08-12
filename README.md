@@ -1,5 +1,5 @@
 # TheWebJournal
-##  Skystar Pierre  ![Alt text](Adobe Express - file.png)
+## ![Alt text](Adobe Express - file.png) Skystar Pierre
 
 ### Tuesday, August 12, 2025
 
