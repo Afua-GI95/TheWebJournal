@@ -1,1 +1,2 @@
-# theWebJournal
+# TheWebJournal
+By Skystar Pierre
