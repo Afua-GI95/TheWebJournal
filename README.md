@@ -1,2 +1,8 @@
 # TheWebJournal
-By Skystar Pierre
+## By Skystar Pierre
+
+### Tuesday, August 12, 2025
+
+
+
+
