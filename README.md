@@ -15,6 +15,6 @@ This report went on to describe the agricultural industry as a "precarious boom"
 
 ### Wednesday, August 13, 2025
 
-## ![Alt text](https://www.trade.gov/ita-metropolitan-export-series?anchor=content-node-t14-field-lp-region-2-1)
+## ![ITA Metropolitan Export Series](https://www.trade.gov/ita-metropolitan-export-series?anchor=content-node-t14-field-lp-region-2-1)
 
 
