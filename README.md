@@ -11,3 +11,10 @@
 This report went on to describe the agricultural industry as a "precarious boom" in Cold War income for farmers. 
 
 
+## ![Alt text](Adobe Express - file.png) Skystar Pierre
+
+### Wednesday, August 13, 2025
+
+## ![Alt text](https://www.trade.gov/ita-metropolitan-export-series?anchor=content-node-t14-field-lp-region-2-1)
+
+
