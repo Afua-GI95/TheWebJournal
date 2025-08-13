@@ -20,5 +20,7 @@ This report went on to describe the agricultural industry as a "precarious boom"
 ### Goods Exports from Metropolitan Statistical Areas
 #### The Metropolitan Export Map displays total MSA goods exports, the top 10 MSA exporters to the nation’s top 50 markets, and the top 50 MSA exporters by industry for years with available data.
 
+## ![Alt text](Export Map.png)
+
 ##### The data provided coincides with provided data from other sources. For example, the states coded in yellow have suppressed funds from their exports. While, other states have funds up to $1B. Since 2011, the U.S has only seen funds in it's market capped at $1B. 
 
