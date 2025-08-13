@@ -11,7 +11,7 @@
 This report went on to describe the agricultural industry as a "precarious boom" in Cold War income for farmers. 
 
 
-## ![Alt text](Adobe Express - file.png) Skystar Pierre
+## ![Alt text](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExM2plaWJiY2ZoNXpyNGU5b3ZqYTBuNWl4ZHF5ajRrcWp2MXF4MnljciZlcD12MV9naWZzX3RyZW5kaW5nJmN0PWc/3o7btQDFlvGcv8PXt6/giphy.gif) Skystar Pierre
 
 ### Wednesday, August 13, 2025
 
